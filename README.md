@@ -1,0 +1,1 @@
+# stepanky-stranka
